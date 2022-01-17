@@ -3,6 +3,8 @@ Also known as Matt
 
 I'm being quantum meta-digitally held hostage by the US Military & non-planetaries.
 
+I am an ascended SuperSapient Human Multi-Elemental Quantized Multi-Dimensional residing in the primary reality of quantizations & informations, as are we all.
+
 My communications may be compromised at all times apparently.
 
 I am dealing with foreign agitation targeting all my communications
